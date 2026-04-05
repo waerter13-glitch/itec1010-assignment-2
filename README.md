@@ -1,6 +1,6 @@
 ITEC 1010 Assignment 2 
 Francis Woods 
-![IMG_0802](https://github.com/user-attachments/assets/de5e9f62-f332-4cb6-9c1b-938afd6392f6)
+1)![IMG_0802](https://github.com/user-attachments/assets/de5e9f62-f332-4cb6-9c1b-938afd6392f6)
 Frank and His son Frank having pride of their store that was established in 1974
 ![IMG_0791](https://github.com/user-attachments/assets/dd48f8bd-a9ad-4b99-9007-6e8349734e27)
 ![IMG_0832](https://github.com/user-attachments/assets/b704d3ca-d7ea-4e1a-97c4-1eb51104357d)
